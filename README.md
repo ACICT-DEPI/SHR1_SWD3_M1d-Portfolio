@@ -1,0 +1,1 @@
+# SHR1_SWD3_M1d-Portfolio
